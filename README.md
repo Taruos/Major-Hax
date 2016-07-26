@@ -4,4 +4,4 @@
 -Hack
 -Everything
 
-Important [Memes](http://www.memelife.ml)
+Important [Memes](http://www.memelife.ml) to look at
