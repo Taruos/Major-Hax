@@ -1,2 +1,1 @@
 # Major-Hax
-gay
